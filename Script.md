@@ -22,7 +22,7 @@ He stuck his head in the door and saw the color of the foliage was intensely gre
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the doors and followed the stone path overgrown with giant ferns.
 
-Sally met the Unicorn King who granted him magic powers.
+Sally met the Unicorn King who granted him magic powers. She was in awe of such a majestic creature. 
 The end.
 
 ## Cast
