@@ -2,7 +2,7 @@
 
 ## Synopsis
 
-A young boy discovers a hidden gate behind the zoo.
+A young girl discovers a hidden gate behind the zoo.
 Behind it, she finds a magical world of unicorns living in perfect piece and harmony where she discovers the meaning of imagination.
 
 ## Plot
